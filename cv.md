@@ -4,7 +4,7 @@
 
 ## **Contact information**
 
-Phone: +375 29 1196249
+Phone: +375 29 119 62 49
 
 E-mail: belavg@tut.by
 
